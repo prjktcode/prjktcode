@@ -90,7 +90,7 @@ If you’re passionate about **decentralized systems**, **data intelligence**, o
 ## 🤝 Let’s Collaborate 🤝
 
 * 💬 Reach out for projects, collaborations, or just a tech chat!
-* 📫 **[Your Email or LinkedIn Here]**
+* 📫 **njiruchemirmir@gmail.com**
 * 🌐 Explore my repositories below 👇
 
 > *“Innovation thrives where curiosity meets collaboration.”*
